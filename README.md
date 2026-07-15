@@ -91,8 +91,6 @@ Seeking an opportunity as a **Data Analyst / Power BI Developer** where I can ap
 
 📧 Email: **yash987patil654@gmail.com**
 
-💻 GitHub: **github.com/yashpatil9981**
-
 📍 Belagavi, Karnataka, India
 
 ---
